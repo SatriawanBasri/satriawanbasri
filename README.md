@@ -1,0 +1,1 @@
+I’m a Software Developer, I create application for web, mobile and desktop. Most of my project using .NET as a Fullstack Programmer. My carrier goal as a professional Software Engineer, that’s why I should keep in touch with improvement of this filed by keep learning for any update for new technology.
